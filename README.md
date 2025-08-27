@@ -7,3 +7,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Rehann, [Areeyou.id](https://Areeyou.id).
+* Gilang Ramadhan, [Linkedin](https://www.linkedin.com/in/gilang-adhan/).
